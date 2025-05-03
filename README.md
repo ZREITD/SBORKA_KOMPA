@@ -1,0 +1,1 @@
+# SBORKA_KOMPA
